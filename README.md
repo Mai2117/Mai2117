@@ -1,5 +1,5 @@
 # Hi, I'm MAi!
-💻 Studying Information Technology at Damascus university, Syria.<br>🧩 Currently learning Character animation, VFX art and motion graphics designers.<br>🎨 Aspiring to be a graphic designer.
+💻 Studying Information Technology at Damascus university, Syria.<br>🧩 Currently learning Character animation, VFX art and motion graphics designe.<br>🎨 Aspiring to be a graphic designer.
 
 
 ## 🌐 Socials:
